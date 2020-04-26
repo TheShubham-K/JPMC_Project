@@ -1,3 +1,3 @@
 ## Virtual Internships
 
-<a><img src = "JPMorgan_completion_certificate.pdf"></a>
+<a><img src = "JPMorgan_completion_certificate.jpg"></a>
